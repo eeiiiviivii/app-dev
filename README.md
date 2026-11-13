@@ -11,32 +11,34 @@ where ordinary children are trained to become fairy-tale heroes or villains.
  
 ### Why I Like This Movie
  
-I like this movie for the reason that it is magical, fantasy, friendship 
-and betrayal.
+I like The School for Good and Evil because it flips traditional fairy-tale rules upside down by showing that true goodness and wickedness come from a person's choices and actions rather than their outward appearance. The deep bond of friendship between Sophie and Agatha—who are unexpectedly swapped into opposite schools—proves that loyalty and sacrifice matter much more than fitting into a neat label. Coupled with its dazzling magical world, stunning visual effects, and a fun cast like Charlize Theron and Kerry Washington, the movie delivers an entertaining and heartfelt reminder that nobody is strictly cut-and-dried as just good or just evil.
  
 ### My Favorite Characters
  
 - Agatha
 - Tedros
+- sophie
+- professor dovey
+- lady lesso
 
  
 ### What I Like About It
  
-1. Fantasy
+1. Fantasies
 2. Magical
-3. talks about super powers
+3. romance
 4. friendship
    
  
 ### My Favorite Quote
  
-“It doesn't matter what we are, Agatha. It matters what we do.”
+"One doesn't measure one's goodness just by how one looks. No, it's about what one does."
 
 — Sophie
  
 ### My Rating
  
-**⭐⭐⭐⭐ 4/5**
+**⭐⭐⭐⭐⭐ 5/5**
  
 ### Conclusion
  
